@@ -1,5 +1,7 @@
 ## Pita
 
+https://www.mygreekdish.com/recipe/the-easiest-homemade-pita-bread/
+
 ### Ingredients
 
 - 1500–1590g (17-18.5 oz.) strong white bread flour or 150% white and 50% whole-wheat flour
